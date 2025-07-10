@@ -7,4 +7,4 @@
 
 汇聚中文成人精选内容，涵盖欧美强烈画风与亚洲激情剧情，多种风格尽在其中，带来沉浸式观感体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/met20250710/met3 ）</span>
